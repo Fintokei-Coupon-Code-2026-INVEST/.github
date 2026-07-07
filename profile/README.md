@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? **Fintokei** is a prop trading platform offering funded trading programs, evaluation challenges, and scaling opportunities designed to help traders grow their capital through disciplined performance. You can now get an **exclusive 25% discount** by using the promo code: **INVEST** when you register or purchase a challenge.
+Looking for a smarter way to trade and save? **Fintokei** is a prop trading platform offering funded trading programs, evaluation challenges, and scaling opportunities designed to help traders grow their capital through disciplined performance. You can now get an **exclusive 25% discount** by using the promo code: **INVEST** when you register or purchase a challenge!
 
 💎 **Why Choose Fintokei?**
 Fintokei is known for its structured funding programs, transparent evaluation system, and trader-focused environment that supports consistent growth and long-term trading development.
